@@ -1,7 +1,7 @@
 
 Anastasiia Skoropadska
 
-</br>+123456789 eliza.kawaii@gmail.com
+</br> HR.Sko #2319 eliza.kawaii@gmail.com
 
 </br>An active and cheerful person, I can easily find common ground with people. I easily generate ideas for new projects and implement them in the most effective way. I love puzzles and new challenges.
 
