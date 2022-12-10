@@ -1,3 +1,4 @@
+
 Anastasiia Skoropadska
 
 +123456789 eliza.kawaii@gmail.com
@@ -108,6 +109,7 @@ Education
 KHMELNYTSKYI NATIONAL UNIVERSITY:
 Master of Psychology 2009-2014
 Specialist in personnel management and labor economics 2013-2015
+
 
 Additional education 
 Ukrainian Gestalt Institute of Psychotherapy - 2 level 2021-2023
